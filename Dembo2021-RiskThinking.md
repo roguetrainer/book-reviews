@@ -49,6 +49,6 @@ What sets RiskThinking apart from these excellent books is the clarity & pragmat
 
 So long as we are willing to call out that the emperor has no clothes when confronted with certain forecasting models, & to not let our reverence for such models cloud our instincts, we will be in a position to make good decisions, even in the face of radical uncertainty, & even when the primary challenge - the climate crisis -  is the greatest challenge yet against which the human race has pitted its wits.
 
-The lesson starts right here: consider a scenario under which you are required to risk think, but you don’t know how. Dembo provides the hedge.
+The lesson starts right here: consider a scenario under which you are required to risk think, but you don’t know how. Dembo provides the perfect hedge.
 
 I highly recommend RiskThinking, the sanest book on decision making that I have ever read. 
