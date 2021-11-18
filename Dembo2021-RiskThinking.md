@@ -6,7 +6,8 @@ https://riskthinking.ai/blogs/decision-making-in-a-radically-uncertain-world/
 
 As I write this review in November 2021, I have the Canadian Broadcasting Company (CBC) radio playing. The show Ontario Today is airing a special edition because British Columbia (BC) is working to declare a state of emergency in the wake of devastating flooding & mudslides, due to multiple reasons including a weather condition called an “atmospheric river” – a title which, although sounding apocalyptic, does not even do justice to the disaster meted out on the people of the province. Major infrastructure has been destroyed including highways & bridges. Thousands of farm animals have drowned or are without food. Supply chains have been disrupted. Thousands of residents have been evacuated from towns. Many more are stranded or cut off from essential services. Note that this is not a part of the world in which monsoons or flooding have been remotely common in past millennia.
 However, this is not the only extreme climate that BC has suffered recently: a “heat dome” bringing summer temperatures in the mid-forties centigrade (~110 F), & in its wake, devastating forest fires. 
-A caller is being asked what advice he can offer Canadians outside of BC regarding extreme climate events. 
+
+A caller is asked what advice he can offer Canadians outside of BC regarding extreme climate events. 
 
 “Get ready!” the caller says.
 
